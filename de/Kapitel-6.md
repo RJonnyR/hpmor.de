@@ -98,7 +98,7 @@ Aber Harry konnte immer noch nicht das breite Lächeln unterdrücken, das seine 
 
 Harry hatte immer Angst davor, als eines dieser Wunderkinder zu enden, aus denen nie etwas wurde und die den Rest ihres Lebens damit verbrachten, damit zu prahlen, wie weit sie im Alter von zehn Jahren schon gekommen waren. Aber die meisten erwachsenen Genies haben es auch nie zu etwas gebracht. Es gab wahrscheinlich tausend Menschen, die so intelligent wie Einstein waren, für jeden tatsächlichen Einstein in der Geschichte. Denn diese anderen Genies hatten nicht die eine Sache in die Hände bekommen, die du unbedingt brauchst, um Größe zu erreichen. Sie hatten nie ein wichtiges Problem gefunden.
 
-Du gehörst jetzt mir", dachte Harry und betrachtete die Mauern der Winkelgasse, all die Läden und Gegenstände, all die Ladenbesitzer und Kunden, all die Länder und Menschen des zaubernden Britanniens, die ganze weitere zaubernde Welt und das gesamte größere Universum, von dem Muggelwissenschaftler so viel weniger verstanden, als sie glaubten. Ich, Harry James Potter-Evans-Verres, erhebe nun im Namen der Wissenschaft Anspruch auf dieses Gebiet. _
+"Du gehörst jetzt mir", dachte Harry und betrachtete die Mauern der Winkelgasse, all die Läden und Gegenstände, all die Ladenbesitzer und Kunden, all die Länder und Menschen des zaubernden Britanniens, die ganze weitere zaubernde Welt und das gesamte größere Universum, von dem Muggelwissenschaftler so viel weniger verstanden, als sie glaubten. Ich, Harry James Potter-Evans-Verres, erhebe nun im Namen der Wissenschaft Anspruch auf dieses Gebiet. _
 
 Blitz und Donner blieben am wolkenlosen Himmel gänzlich aus und blitzten und dröhnten.
 
